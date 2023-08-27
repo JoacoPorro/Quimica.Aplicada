@@ -9,6 +9,6 @@
 * https://www.youtube.com/channel/UCBIxiWQ5hmarCxLLzyQIIzw
 
 
-##### [Ver mas Repos Libertarias](/)
+##### [Ver mas Repos Libertarias](https://github.com/jporro?tab=repositories&q=&type=&language=&sort=stargazers)
 ### Deja ⭐ Arriba 
 ### Viva la Libertad Carajo!
